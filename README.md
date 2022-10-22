@@ -1,1 +1,0 @@
-# mandass.github.io
